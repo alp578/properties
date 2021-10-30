@@ -1,2 +1,4 @@
 # properties
- 
+ hjhkj
+ jkljlk
+ hjhjoıo
